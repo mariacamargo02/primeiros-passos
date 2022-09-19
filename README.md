@@ -1,3 +1,4 @@
+![triste](https://user-images.githubusercontent.com/113522982/191006315-4ca72bc4-c318-4b15-8574-ccdec638404c.jpg)
 # Meu nome é Maria Eduarda :smiling_face_with_three_hearts:
 ## tenho 17y
 ## faço curso de Desinvolvimento de Sistemas
